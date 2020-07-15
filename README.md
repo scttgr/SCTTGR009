@@ -20,19 +20,20 @@ Digital
 
 
 ### About 
-Lyoma (Tokyo / ex.Berlin) 's Deep & Tech 4 Tech tracks. Incl. Akiko Kiyama (District of
-Corruption/Thema/Safari Electronique/Contexterrior/op.disc/M_nus) and Served Level aka Irie Electric &
-Caecilian Remix!!!!
+Lyoma (Tokyo / ex.Berlin) 's Deep & Tech 4 Tech tracks. Incl. 
+Akiko Kiyama (District of Corruption/Thema/Safari Electronique/Contexterrior/op.disc/M_nus) and Served Level aka Irie Electric & Caecilian Remix!!!!
 
 ### Lyoma (Tokyo / Abend )
-Lyoma was born on February 17th 1978 in Tokyo. As a teenager, he preferred listening to Punk, Metal and
-Hard Rock. In 1993 he encountered unexpected Artist such as Denki Groove,Hardfloor, Plastikman and Josh
-Wink.It made a great effect on him that he shortly exchanged his bass guitar for turntables and he started to
-play driving techno beats. In the end of 1998 he nailed up to Berlin, even if he renounces the rights of
-succession of japanese emperor's chair. Thanks to his curiosity and sociability, he quickly won a lot of friends
-at his new hometown. And bookings had been kept waiting not long. Also short stays in Japan changed by his
-party-project named [ABEND] that is in cooperation with german and japanese artists. And it is still growing up
-in Japan. Watch out for his sets which rises with the shining ABENDSONNE...
+Lyoma was born on February 17th 1978 in Tokyo. As a teenager, he preferred listening to Punk, Metal and Hard Rock. 
+In 1993 he encountered unexpected Artist such as Denki Groove,Hardfloor, Plastikman and Josh Wink.
+It made a great effect on him that he shortly exchanged his bass guitar for turntables and he started to play driving techno beats.
+In the end of 1998 he nailed up to Berlin, 
+even if he renounces the rights of succession of japanese emperor's chair.
+Thanks to his curiosity and sociability, he quickly won a lot of friends at his new hometown.
+And bookings had been kept waiting not long.
+Also short stays in Japan changed by his party-project named [ABEND] that is in cooperation with german and japanese artists.
+And it is still growing up in Japan. 
+Watch out for his sets which rises with the shining ABENDSONNE...
 
 http://www.der-abend.com
 http://www.myspace.com/abendklang
